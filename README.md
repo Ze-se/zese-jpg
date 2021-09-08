@@ -1,2 +1,0 @@
-# zese-jpg
-met dessin
